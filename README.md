@@ -21,6 +21,6 @@ On this Medium space, you’ll discover:
 
 ✅ Tech for Startups — lightweight apps, automation, and growth ideas
 
-🌐 Explore more at: https://amsssoftx.com
+🌐 Explore more at: https://amssoftx.com
 
 Thank you for being here — let’s build smarter with tech, together. 🚀
